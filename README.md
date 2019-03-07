@@ -3,17 +3,7 @@ _Contact aberkoy at citytech dot cuny dot edu with any additions or corrections!
   
 
 ### EXHIBITIONS  
-  
-![Static](https://thekitchen.org/system/images/BAhbB1sHOgZmSSI6MjAxOS8wMS8yMi8xM18yMl8wOF82NzlfQW5pbWFsU3RhdGljX25ld3NpdGVpbWFnZS5wbmcGOgZFVFsIOgZwOgp0aHVtYkkiDTk0MHgzNzAjBjsGVA/AnimalStatic-newsiteimage.png)  
-[Lex Brown: Animal Static](https://thekitchen.org/event/lex-brown-animal-static)  
-_Motion-triggered video installation, performance_  
-January 17 - February 23, 2019   
-Performances February 21-22, 2019  
-at [The Kitchen](https://thekitchen.org)      
-512 W 19th St, NYC  
-Free  
-<br/><br/>   
-   
+     
 ![Beasley](https://whitney.org/uploads/image/file/819789/xlarge_Kevin-Beasley_web-quality-Press-Image.jpg)  
 [Kevin Beasley: A view of a landscape](https://whitney.org/Exhibitions/KevinBeasley)    
 _Music Tech, sound installation, mixed media works_  
@@ -119,16 +109,6 @@ at [Samsung 837](https://www.samsung.com/us/837)
 Free  
 <br/><br/>   
   
-
-### EVENTS    
-    
-![EIS](https://2104310a1da50059d9c5-d1823d6f516b5299e7df5375e9cf45d2.ssl.cf2.rackcdn.com/2019/01/29077-demopoulos.jpg)  
-[Electroacoustic Improvisation Summit (EIS)](https://eis.nyc/#--program-2019)    
-_Music Tech, music improv and real-time interactive computer systems, directed by Prof Adam Wilson_  
-February 22 and 23, 2019  
-at CUNY City Tech's Voorhees Theater  
-186 Jay Street, Brooklyn  
-Free, suggested donation  
     
 
 
