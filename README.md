@@ -4,24 +4,6 @@ _Contact aberkoy at citytech dot cuny dot edu with any additions or corrections!
 
 ### EXHIBITIONS  
      
-![Beasley](https://whitney.org/uploads/image/file/819789/xlarge_Kevin-Beasley_web-quality-Press-Image.jpg)  
-[Kevin Beasley: A view of a landscape](https://whitney.org/Exhibitions/KevinBeasley)    
-_Music Tech, sound installation, mixed media works_  
-December 15, 2018 - March 10, 2019   
-at [Whitney Museum](http://whitney.org)    
-99 Gansevoort Street, NYC  
-Free with City Tech ID    
- <br/><br/>   
- 
-![Cracked Mud](https://bitforms.art/wp-content/uploads/2019/01/dr_crackedmud_temp_3_w.jpg)  
-[Daniel Rozin: Sol](https://bitforms.art/exhibitions/rozin-2019/press-release)  
-_Physical Computing, Interactive Installation, Kinetic Sculpture_  
-February 8, 2019- March 17, 2019  
-at [Bitforms Gallery](https://bitforms.art)    
-131 Allen St, NYC  
-Free        
-<br/><br/>  
-  
 ![Refiguring](https://static1.squarespace.com/static/57ab6f341b631bb0ce76339e/5c12d24b0ebbe833d8559790/5c12d24c88251b42ac406ccb/1544738309219/sys3bw300.jpg?format=2500w)    
 
 [Refiguring the Future](http://www.205hudsongallery.org/calendar/2018/02/09/refiguringthefuture)   
@@ -68,7 +50,17 @@ at [New Museum](https://www.newmuseum.org)
 235 Bowery, NYC  
 Thursdays 7-9 PM Pay-What-You-Wish  
 Otherwise $12 with Student ID     
- <br/><br/>  
+ <br/><br/>    
+   
+![Order](https://www.moma.org/d/assets/W1siZiIsIjIwMTkvMDMvMjkvMzBudTJ3Zml4YV90cjE1Mjg0X2tsaW5lM2Z1bGxfanBlZy5qcGciXSxbInAiLCJjb252ZXJ0IiwiLXJlc2l6ZSAxMDI0eDEwMjRcdTAwM2UiXV0/tr15284_kline3full_jpeg.jpg?sha=e0afd69b940c3407)    
+
+[New Order: Art and Technology in the Twenty-First Century](https://www.moma.org/calendar/exhibitions/5033?)   
+_computational art; Physical Computing; game simulation; hologram; digital fab; interactive installation_    
+through June 15, 2019   
+at [MoMA](https://www.moma.org)    
+11 West 53rd Street, NYC  
+Free with City Tech ID    
+ <br/><br/> 
  
 ![Core](http://localprojects.com/imagetask/.eJx9jc0KwjAQhN9lz2vYghaaa8GTiogXCSHUGpNoNKGJ-Eff3dAH8DLMDMM3AqhW63ZzUKutWtCcVB_ZJRpAIcDdOqNzl64sDqHXKYUhMe-OrB1CLAuJX3gDnzUNwgs4IVjtjM3AK6pL93SnbEtoiEaJf3g7ndxH78PS5YKtaiK8P7zHc-eTnmy5GuUkP-8YOrQ.v7d8gNq3Z0XIipNa3aDOBX0JuIo)  
 [New York at its Core](http://thecreatorsproject.vice.com/blog/redesign-new-york-city-museum-experience)    
