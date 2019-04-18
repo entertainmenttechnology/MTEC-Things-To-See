@@ -3,27 +3,7 @@ _Contact aberkoy at citytech dot cuny dot edu with any additions or corrections!
   
 
 ### EXHIBITIONS  
-     
-![Refiguring](https://static1.squarespace.com/static/57ab6f341b631bb0ce76339e/5c12d24b0ebbe833d8559790/5c12d24c88251b42ac406ccb/1544738309219/sys3bw300.jpg?format=2500w)    
-
-[Refiguring the Future](http://www.205hudsongallery.org/calendar/2018/02/09/refiguringthefuture)   
-_Group exhibition of artists working with technology, "inspired by artist Morehshin Allahyari’s work defining a concept of “refiguring” as a feminist, de-colonial, and activist practice"_  
-February 8, 2019 - March 31, 2019   
-at [205 Hudson Gallery, Hunter College Art Galleries](http://www.205hudsongallery.org)    
-205 Hudson Street, NYC  
-Free    
- <br/><br/>       
- 
-![Programmed](https://whitney.org/uploads/image/file/821474/xlarge_FINALFLIP_93.139_PaikNJ.1989install8.jpg)    
-
-[Programmed: Rules, Codes, and Choreographies in Art, 1965-2018](https://whitney.org/exhibitions/programmed)   
-_Survey of conceptual, video, and computational art; Physical Computing; interactive installation; AR_  
-September 28, 2018 - April 14, 2019   
-at [Whitney Museum](http://whitney.org)    
-99 Gansevoort Street, NYC  
-Free with City Tech ID    
- <br/><br/>        
-      
+           
 ![Binaries](https://pioneerworks.org/wp-content/uploads/Snow-Yunxue-Fu_Karst-768x432.jpg)     
 [Refiguring Binaries](https://pioneerworks.org/exhibitions/refiguring-binaries/?utm_source=Newsletter&utm_campaign=February%20programs)   
 _Group exhibition that "explores identity, the body, and the politics of technology"_  
