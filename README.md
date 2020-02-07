@@ -130,13 +130,23 @@ at [ZeroSpace](https://zerospace.co/)
 $30-50+
 <br/><br/>   
 
-### EVENTS    
+### EVENTS      
+  
+![Edge](https://images.squarespace-cdn.com/content/5e1e12fc534543709cbcfda1/1580864088405-0WC4WI9X2F0UIKUONEI3/2yzCzFPX.jpg?format=1000w&content-type=image%2Fjpeg)    
+[EdgeCut: Hybridity](https://www.edgecut.org/events/hybridity)      
+_"an evening of short performance works on the theme HYBRIDITY... at the cutting edge of performance and technology" curated by MTEC Prof Heidi Boisvert and Kat Mustatea_    
+February 27, 2020   
+at [New Inc](https://www.newinc.org)    
+231 Bowery, Manhattan     
+Seats limited, online registration required   
+Suggested donation $1-20    
+<br/><br/>
     
 ![EIS](https://2104310a1da50059d9c5-d1823d6f516b5299e7df5375e9cf45d2.ssl.cf2.rackcdn.com/2019/01/29077-demopoulos.jpg)  
 [Electroacoustic Improvisation Summit (EIS)](https://eis.nyc/#--program-2020)    
 _"concert series featuring music by artists focused on the integration of music improvisation and real-time interactive computer systems" directed by MTEC Prof Adam Wilson_  
-February 28 and 29, 2020
-at CUNY City Tech's Voorhees Theater  
+February 28 and 29, 2020   
+at CUNY City Tech's Voorhees Theater    
 186 Jay Street, Brooklyn  
 Free, suggested donation  
     
