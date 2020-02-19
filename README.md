@@ -59,7 +59,16 @@ at [Pioneer Works](https://pioneerworks.org/)
 159 Pioneer Street, Red Hook, Brooklyn   
 Free    
 <br/><br/>    
-  
+
+![Gentle](https://video-images.vice.com/_uncategorized/1540831407391-Gentle-Monster-New-York-FS_1.jpeg?resize=1575:*)      
+[The Visitor](https://garage.vice.com/en_us/article/bj49n8/gentle-monster-sunglasses-store)    
+_kinetic installations spread throughout retail environment_     
+Now through May-ish 2020      
+at [Gentle Monster](https://www.gentlemonster.com/)      
+70 Wooster Street, Manhattan  
+Free
+<br/><br/> 
+
   
 ![Face](https://uh8yh30l48rpize52xh0q1o6i-wpengine.netdna-ssl.com/wp-content/uploads/2019/08/CH-LDB-Photo-David-Levene-3-1.jpg)  
 [Face Values: Exploring Artificial Intelligence](https://www.cooperhewitt.org/events/current-exhibitions/face-values/)   
