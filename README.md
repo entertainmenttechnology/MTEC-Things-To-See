@@ -5,24 +5,6 @@ Contact aberkoy at citytech dot cuny dot edu with any additions or corrections!_
 ### EXHIBITIONS CLOSING SOON    
 _In order of closing soonest..._ 
   
-  
-![light](https://static.wixstatic.com/media/710937_cc0cb452ccae4056a62af1bc4d39ea3c~mv2.jpg/v1/fill/w_1732,h_1082,al_c,q_85,usm_0.66_1.00_0.01/Installation%20no_%2038_01.webp)   
-[Jan Tichy: Light Shop](https://www.fridmangallery.com/light-shop)   
-_light sculpture, video/sound installation, multimedia_   
-January 22, 2020 - February 23, 2020   
-at [Fridman Gallery](https://www.fridmangallery.com/)   
-169 Bowery, Manhattan   
-Free   
-<br/><br/>   
-  
-![Submerge](https://specials-images.forbesimg.com/imageserve/5e362e348b6cf300071dacd9/960x0.jpg?fit=scale)   
-[Submerge: Immersive Installation Inspired by Pantone Color of the Year 2020](https://www.artechouse.com/submerge)   
-_immersive installation with 16K resolution laser projection and 32-channel sound_   
-February 5 - February 23, 2020   
-at [ARTECHOUSE at Chelsea Market](https://www.artechouse.com/nyc)   
-439 W 15th St, Manhattan    
-$20 student tickets   
-<br/><br/> 
 
 ![water](https://whitney.org/uploads/image/file/824068/large_WMAA_POPE.L_07D_NEW.jpg)  
 [Pope.L: Choir](https://whitney.org/exhibitions/pope-l)      
@@ -142,22 +124,15 @@ $30-50+
 ### EVENTS      
   
 ![Edge](https://images.squarespace-cdn.com/content/5e1e12fc534543709cbcfda1/1580864088405-0WC4WI9X2F0UIKUONEI3/2yzCzFPX.jpg?format=1000w&content-type=image%2Fjpeg)    
-[EdgeCut: Hybridity](https://www.edgecut.org/events/hybridity)      
-_"an evening of short performance works on the theme HYBRIDITY... at the cutting edge of performance and technology" curated by MTEC Prof Heidi Boisvert and Kat Mustatea_    
-February 27, 2020   
-at [New Inc](https://www.newinc.org)    
+[EdgeCut: Complexity](https://www.eventbrite.com/e/edgecut-i-complexity-tickets-96531350869)      
+_"an evening of short performance works on the theme COMPLEXITY... at the cutting edge of performance and technology" curated by MTEC Prof Heidi Boisvert and Kat Mustatea_    
+March 26, 2020     
+at [New Inc](https://www.newinc.org)      
 231 Bowery, Manhattan     
 Seats limited, online registration required   
 Suggested donation $1-20    
 <br/><br/>
-    
-![EIS](https://2104310a1da50059d9c5-d1823d6f516b5299e7df5375e9cf45d2.ssl.cf2.rackcdn.com/2019/01/29077-demopoulos.jpg)  
-[Electroacoustic Improvisation Summit (EIS)](https://eis.nyc/#--program-2020)    
-_"concert series featuring music by artists focused on the integration of music improvisation and real-time interactive computer systems" directed by MTEC Prof Adam Wilson_  
-February 28 and 29, 2020   
-at CUNY City Tech's Voorhees Theater    
-186 Jay Street, Brooklyn  
-Free, suggested donation  
+
     
 
 
