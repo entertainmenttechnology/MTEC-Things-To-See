@@ -119,7 +119,18 @@ Ongoing
 at [ZeroSpace](https://zerospace.co/)   
 136 W 33rd St, Manhattan 
 $30-50+
-<br/><br/>   
+<br/><br/>     
+  
+![Henson](http://www.movingimage.us/images/exhibitions/media/jhe_exhibition_webpage_550x238-detail-main.jpg)  
+[The Jim Henson Experience](http://www.movingimage.us/exhibitions/2017/07/22/detail/the-jim-henson-exhibition/)   
+[Behind the Screen](http://www.movingimage.us/exhibitions/1988/09/10/detail/behind-the-screen-2/)   
+_Computer-driven interactive experiences embedded throughout these exhibitions._  
+Ongoing     
+at [Museum of the Moving Image](http://www.movingimage.us/)    
+36-01 35 Ave, Astoria, Queens  
+Fridays 4-8 PM Free    
+Otherwise $11 with Student ID    
+<br/><br/> 
 
 ### EVENTS      
   
