@@ -102,7 +102,7 @@ _more soon_
   
 ------- 
   
-_For complete list of museums and venues offering free admission with City Tech ID, click [here.](http://www1.cuny.edu/sites/cuny-arts/free-access)_
+_For complete list of museums and venues offering free admission with City Tech ID, click [here.](https://www.cuny.edu/academics/current-initiatives/cuny-arts/#p9)_
   
   
 
