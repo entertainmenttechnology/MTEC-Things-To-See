@@ -94,7 +94,14 @@ Otherwise varying prices with Student ID
 
 ### EVENTS      
   
-_more soon_
+![EIS](https://www.citytech.cuny.edu/news/dashboard/images/nyc_eis_2017.jpg)    
+[New York City Electroacoustic Improvisation Summit](https://eis.nyc/#--program-2023)   
+_Directed by MTEC Prof Adam Wilson: "annual concert series featuring music by artists focused on the integration of music improvisation and real-time interactive computer systems."_    
+Friday, March 31 at 7:00 PM   
+at Voorhees Theater at City Tech    
+186 Jay Street, Brooklyn    
+Free (with suggested donation of $10)     
+  <br/><br/>  
 
     
 
