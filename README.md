@@ -51,6 +51,16 @@ at [MoMA](https://www.moma.org/)
 Free with City Tech ID     
  <br/><br/>  
  
+ 
+  ![game](https://press.moma.org/wp-content/uploads/2022/09/IN2500_002_CCCR-Press-Site-2000x1429.jpg)  
+[Never Alone: Video Games and Other Interactive Design](https://www.moma.org/calendar/exhibitions/5453)    
+_Exhibition focused on interactive design, visual and tactile interfaces, and video games_  
+Now - through July 16, 2023   
+at [MoMA](https://www.moma.org/)      
+11 West 53 Street, Manhattan   
+Free with City Tech ID     
+ <br/><br/>  
+ 
  ![Kline](https://whitneymedia.org/assets/image/827935/large__Key-Image_-20181120-_MG_4061_web.jpg)  
 [Josh Kline: Project for a New American Century](https://whitney.org/exhibitions/josh-kline)      
 _"Kline is best known for creating immersive installations using video, sculpture, photography, and design to question how emergent technologies are changing human life in the twenty-first century."_    
