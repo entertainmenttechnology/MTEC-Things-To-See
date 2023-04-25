@@ -6,32 +6,26 @@ Contact aberkoy at citytech dot cuny dot edu with any additions or corrections!_
 _In order of closing soonest..._ 
   
   
-![CC](https://bitforms.art/wp-content/uploads/2023/02/18.png)  
-[Code Chronicles](https://bitforms.art/exhibition/code-chronicles/)  
-_"Code Chronicles examines how generative systems mediate continuity with artworks from eight pioneering artists"_  
-March 3 - April 15, 2023  
-at [Bitforms Gallery](https://bitforms.art/)     
-131 Allen St, Manhattan   
-Free    
-<br/><br/> 
+
 
 ![anadol](http://press.moma.org/wp-content/uploads/2022/11/K4A6064_edit_2000px.jpeg)  
 [Refik Anadol: Unsupervised](https://www.moma.org/calendar/exhibitions/5535)    
 _Code-driven audiovisual installation using ML trained on data from MoMA's vast collection. Also includes inputs of "light, movement, acoustics, and the weather outside—to affect the continuously shifting imagery and sound."_  
-Through April 15, 2023   
+Through ~April 15, 2023~ (looks like this has been extended, but not clear until when)   
 at [MoMA](https://www.moma.org/)      
 11 West 53 Street, Manhattan   
 Free with City Tech ID     
  <br/><br/>   
+  
  
- ![Drum](https://cdn.sanity.io/images/vgvol637/production/2ee452d9431b0a4ec6701cc0e238d9be58d9ef9a-6560x4373.jpg?w=2000)  
-[Medusa: Tin Drum](https://pioneerworks.org/exhibitions/tin-drum-medusa)  
-_"Bridging art, science, music, and technology, Medusa comprises a unique and evolving mixed reality experience that envelops visitors within a new realm of physicality, visuality, and sound."_  
-March 17 - April 16, 2023   
-at [Pioneer Works](https://pioneerworks.org/)        
-159 Pioneer Street, Red Hook, Brooklyn   
+ ![canogar](https://www.danielcanogar.com/contenido/galeria/canogar-CHYRON-PROJECTION-STUDIODANIELCANOGAR-2022.jpg)  
+[Pixelweaver](https://bitforms.art/exhibition/pixelweaver-daniel-canogar/)  
+_"Pixelweaver draws on textiles as a metaphor to portray the social fabric that emerges from a data-driven society."_  
+April 28 - June 17, 2023  
+at [Bitforms Gallery](https://bitforms.art/)     
+131 Allen St, Manhattan   
 Free    
-<br/><br/>  
+<br/><br/> 
  
  ![Refigured](https://whitneymedia.org/assets/image/828493/RachelRossin_The_Maw_Of_1_edited_web.png)  
 [Refigured](https://whitney.org/exhibitions/refigured)      
@@ -104,13 +98,14 @@ Otherwise varying prices with Student ID
 
 ### EVENTS      
   
-![EIS](https://www.citytech.cuny.edu/news/dashboard/images/nyc_eis_2017.jpg)    
-[New York City Electroacoustic Improvisation Summit](https://eis.nyc/#--program-2023)   
-_Directed by MTEC Prof Adam Wilson: "annual concert series featuring music by artists focused on the integration of music improvisation and real-time interactive computer systems."_    
-Friday, March 31 at 7:00 PM   
-at Voorhees Theater at City Tech    
-186 Jay Street, Brooklyn    
-Free (with suggested donation of $10)     
+![NYPL](https://img.evbuc.com/https%3A%2F%2Fcdn.evbuc.com%2Fimages%2F424385809%2F160842161651%2F1%2Foriginal.20230113-200710?w=940&auto=format%2Ccompress&q=75&sharp=10&rect=0%2C1162%2C3738%2C1869&s=0a0438955e1d1edb286fbf7b6fdc36d1)    
+[Kyueun Kim on How VR Technology Is Changing Theatre](https://www.eventbrite.com/e/kyueun-kim-on-how-vr-technology-is-changing-theatre-tickets-515183887877)   
+_"The Library’s inaugural Theatre and Technology Fellow, Kyueun Kim, will discuss her project to document the oral histories of those who performed in the metaverse during the Covid-19 pandemic using the very virtual reality technologies that served as the platform for the original works."_    
+Monday, May 1 at 6:00 PM     
+at [New York Public Library for the Performing Arts](https://www.nypl.org/locations/lpa) -Bruno Walter Auditorium   
+Enter via 111 Amsterdam Ave. between West 64th and 65th Street   
+New York, NY 10023-7498          
+Free [RSVP here](https://www.eventbrite.com/e/kyueun-kim-on-how-vr-technology-is-changing-theatre-tickets-515183887877) 
   <br/><br/>  
 
     
