@@ -48,10 +48,29 @@ September 7 - December 9, 2023
 at [Ford Foundation Gallery](https://www.fordfoundation.org/about/the-ford-foundation-center-for-social-justice/visitor-information/)     
 320 E 43rd St, Manhattan   
 Free    
-<br/><br/>
+<br/><br/>  
+
+  ![eva](https://movingimage.us/wp-content/uploads/2023/09/EvaDavidova_GlobalMode_Prometheus3.jpeg)  
+  [Eva Davidova: Global Mode](https://movingimage.us/event/global-mode/)  
+  _interactive installation, "visitors are connected to animal avatars through the movement of their own bodies, creating a direct effect on the unfolding stories"_    
+  October 20, 2023 - February 12, 2024    
+  at [Museum of the Moving Image](https://movingimage.us/event/global-mode/)  
+  36-01 35 Ave, Queens    
+  Free general admission every Thursday, 2-6 PM    
+  $12 during regular hours with student ID    
+  <br/><br/>
  
 
 ### ONGOING EXHIBITIONS 
+![cento](https://whitneymedia.org/assets/image/829165/large_RS73494_Nancy_Baker_Cahill_Cento_sketch.jpg)  
+[Nancy Baker Cahill: CENTO](https://whitney.org/exhibitions/cento)     
+_"participatory augmented reality art project collectively built by the audience"_  
+at [Whitney Museum](https://whitney.org/)    
+99 Gansevoort Street, Manhattan  
+Free with City Tech ID  
+<br/><br/>
+
+
 ![Gentle](https://video-images.vice.com/_uncategorized/1540831407391-Gentle-Monster-New-York-FS_1.jpeg?resize=1575:*)      
 [The Visitor](https://garage.vice.com/en_us/article/bj49n8/gentle-monster-sunglasses-store)    
 _kinetic installations spread throughout retail environment_          
