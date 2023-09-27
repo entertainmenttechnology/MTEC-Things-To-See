@@ -4,6 +4,15 @@ Contact aberkoy at citytech dot cuny dot edu with any additions or corrections!_
 
 ### EXHIBITIONS CLOSING SOON    
 _In order of closing soonest..._ 
+
+![standing](https://cdn.filestackcontent.com/output=f:jpg,q:50,d:200/resize=width:1905,fit:max/CELp1fhSJeAtDaXMViCU)  
+[Standing on the Corner: Seven Prepared Pianos for the Seven African Powers](https://www.momaps1.org/programs/179-standing-on-the-corner)  
+_"sonic, multimedia installation that brings together spiritual objects, modified instruments, and moving images"_  
+June 1 - October 9, 2023  
+at [MoMA PS1](https://www.momaps1.org/)  
+22-25 Jackson Avenue, Queens  
+Free with City Tech ID
+<br/><br/>
   
 ![reben](https://bitforms.art/wp-content/uploads/2023/09/install_6_w.png)  
 [Alexander Reben: Delusions of a Time-Traveling Cactus](https://bitforms.art/exhibition/alexander-reben/)  
@@ -32,7 +41,14 @@ at [Pioneer Works](https://pioneerworks.org/)
 Free    
 <br/><br/>
 
-
+![ford](https://www.fordfoundation.org/wp-content/uploads/2023/09/2.-Installation-View_credit-Sebastian-Bach_Ford-Foundation-Gallery_What-Models-Make-Worlds.jpg)  
+[What Models Make Worlds: Critical Imaginaries of AI](https://www.fordfoundation.org/about/the-ford-foundation-center-for-social-justice/ford-foundation-gallery/exhibitions/what-models-make-worlds-critical-imaginaries-of-ai/)  
+_artworks exploring algorithmic models and AI_  
+September 7 - December 9, 2023  
+at [Ford Foundation Gallery](https://www.fordfoundation.org/about/the-ford-foundation-center-for-social-justice/visitor-information/)     
+320 E 43rd St, Manhattan   
+Free    
+<br/><br/>
  
 
 ### ONGOING EXHIBITIONS 
