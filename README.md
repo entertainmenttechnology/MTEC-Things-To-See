@@ -5,33 +5,7 @@ Contact aberkoy at citytech dot cuny dot edu with any additions or corrections!_
 ### EXHIBITIONS CLOSING SOON    
 _In order of closing soonest..._ 
 
-![standing](https://cdn.filestackcontent.com/output=f:jpg,q:50,d:200/resize=width:1905,fit:max/CELp1fhSJeAtDaXMViCU)  
-[Standing on the Corner: Seven Prepared Pianos for the Seven African Powers](https://www.momaps1.org/programs/179-standing-on-the-corner)  
-_"sonic, multimedia installation that brings together spiritual objects, modified instruments, and moving images"_  
-June 1 - October 9, 2023  
-at [MoMA PS1](https://www.momaps1.org/)  
-22-25 Jackson Avenue, Queens  
-Free with City Tech ID
-<br/><br/>
   
-![reben](https://bitforms.art/wp-content/uploads/2023/09/install_6_w.png)  
-[Alexander Reben: Delusions of a Time-Traveling Cactus](https://bitforms.art/exhibition/alexander-reben/)  
-_generative artworks, AI, a drawing machine, and more_  
-September 6 - October 28, 2023  
-at [Bitforms Gallery](https://bitforms.art/)     
-131 Allen St, Manhattan   
-Free    
-<br/><br/>
-
-![anadol](http://press.moma.org/wp-content/uploads/2022/11/K4A6064_edit_2000px.jpeg)  
-[Refik Anadol: Unsupervised](https://www.moma.org/calendar/exhibitions/5535)    
-_Code-driven audiovisual installation using ML trained on data from MoMA's vast collection. Also includes inputs of "light, movement, acoustics, and the weather outside—to affect the continuously shifting imagery and sound."_  
-Through October 29, 2023  
-at [MoMA](https://www.moma.org/)      
-11 West 53 Street, Manhattan   
-Free with City Tech ID     
- <br/><br/>   
-
 ![laser](https://cdn.sanity.io/images/vgvol637/production/82dc6acc23b41301eb680128f859a0bff5d80568-1920x1440.jpg?w=2000)  
 [Liz Magic Laser: Convulsive States](https://pioneerworks.org/exhibitions/liz-magic-laser-convulsive-states)  
 _interactive videos exploring psychosomatic disorders_  
@@ -49,6 +23,17 @@ at [Ford Foundation Gallery](https://www.fordfoundation.org/about/the-ford-found
 320 E 43rd St, Manhattan   
 Free    
 <br/><br/>  
+
+![reas](https://bitforms.art/wp-content/uploads/2021/09/cr_NFT_1_w-1024x683.jpg)  
+[Casey Reas: It Doesn’t Exist (In Any Other Form)](https://bitforms.art/exhibition/casey-reas/)  
+_co-creator of Processing showing conceptual software painting, generative and blockchain based works, video, plotter drawings_  
+November 9 - January 12, 2024  
+at [Bitforms Gallery](https://bitforms.art/)     
+131 Allen St, Manhattan   
+Free    
+<br/><br/>
+ 
+
 
   ![eva](https://movingimage.us/wp-content/uploads/2023/09/EvaDavidova_GlobalMode_Prometheus3.jpeg)  
   [Eva Davidova: Global Mode](https://movingimage.us/event/global-mode/)  
