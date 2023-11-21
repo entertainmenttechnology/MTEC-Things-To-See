@@ -5,16 +5,6 @@ Contact aberkoy at citytech dot cuny dot edu with any additions or corrections!_
 ### EXHIBITIONS CLOSING SOON    
 _In order of closing soonest..._ 
 
-  
-![laser](https://cdn.sanity.io/images/vgvol637/production/82dc6acc23b41301eb680128f859a0bff5d80568-1920x1440.jpg?w=2000)  
-[Liz Magic Laser: Convulsive States](https://pioneerworks.org/exhibitions/liz-magic-laser-convulsive-states)  
-_interactive videos exploring psychosomatic disorders_  
-September 8 - November 19, 2023  
-at [Pioneer Works](https://pioneerworks.org/)     
-159 Pioneer Street, Brooklyn  
-Free    
-<br/><br/>
-
 ![ford](https://www.fordfoundation.org/wp-content/uploads/2023/09/2.-Installation-View_credit-Sebastian-Bach_Ford-Foundation-Gallery_What-Models-Make-Worlds.jpg)  
 [What Models Make Worlds: Critical Imaginaries of AI](https://www.fordfoundation.org/about/the-ford-foundation-center-for-social-justice/ford-foundation-gallery/exhibitions/what-models-make-worlds-critical-imaginaries-of-ai/)  
 _artworks exploring algorithmic models and AI_  
@@ -86,7 +76,12 @@ Otherwise varying prices with Student ID
 
 
 ### EVENTS      
-More TBA  
+[NYU ITP | IMA Winter Show](https://itp.nyu.edu/shows/winter2023/)     
+_An exhibition of creative interactive projects from NYU's IMA and ITP programs_   
+370 Jay St, 2nd and 4th Floors, Brooklyn    
+December 17 2-6 and December 18 4-8        
+Free
+<br/><br/>  
 
     
 
