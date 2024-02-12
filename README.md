@@ -104,9 +104,7 @@ Otherwise varying prices with Student ID
 
 ### EVENTS      
 
-<br/><br/>  
-
-    
+Check listings at [CultureHub](https://www.culturehub.org/events), [Onassis Onx](https://www.onx.studio/onx-public-programs), and [Harvestworks](https://www.harvestworks.org/) for ongoing performances, workshops, and talks exploring emerging technologies in the arts.
 
 
   
