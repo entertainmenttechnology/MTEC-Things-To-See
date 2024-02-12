@@ -5,19 +5,12 @@ Contact aberkoy at citytech dot cuny dot edu with any additions or corrections!_
 ### EXHIBITIONS CLOSING SOON    
 _In order of closing soonest..._ 
 
-![ford](https://www.fordfoundation.org/wp-content/uploads/2023/09/2.-Installation-View_credit-Sebastian-Bach_Ford-Foundation-Gallery_What-Models-Make-Worlds.jpg)  
-[What Models Make Worlds: Critical Imaginaries of AI](https://www.fordfoundation.org/about/the-ford-foundation-center-for-social-justice/ford-foundation-gallery/exhibitions/what-models-make-worlds-critical-imaginaries-of-ai/)  
-_artworks exploring algorithmic models and AI_  
-September 7 - December 9, 2023  
-at [Ford Foundation Gallery](https://www.fordfoundation.org/about/the-ford-foundation-center-for-social-justice/visitor-information/)     
-320 E 43rd St, Manhattan   
-Free    
-<br/><br/>  
 
-![reas](https://bitforms.art/wp-content/uploads/2021/09/cr_NFT_1_w-1024x683.jpg)  
-[Casey Reas: It Doesn’t Exist (In Any Other Form)](https://bitforms.art/exhibition/casey-reas/)  
-_co-creator of Processing showing conceptual software painting, generative and blockchain based works, video, plotter drawings_  
-November 9 - January 12, 2024  
+
+![hill](https://bitforms.art/wp-content/uploads/2024/01/language-pit_filled-1-1024x686.png)  
+[Gary Hill: Language Pit](https://bitforms.art/exhibition/gary-hill-language-pit/)  
+_"works that explore the physicality of language... through silkscreens, watercolors, sculpture, and video installation"_  
+February 1 - March 16, 2024  
 at [Bitforms Gallery](https://bitforms.art/)     
 131 Allen St, Manhattan   
 Free    
@@ -25,10 +18,10 @@ Free
  
 
 
-  ![eva](https://movingimage.us/wp-content/uploads/2023/09/EvaDavidova_GlobalMode_Prometheus3.jpeg)  
-  [Eva Davidova: Global Mode](https://movingimage.us/event/global-mode/)  
-  _interactive installation, "visitors are connected to animal avatars through the movement of their own bodies, creating a direct effect on the unfolding stories"_    
-  October 20, 2023 - February 12, 2024    
+  ![harvey](https://movingimage.org/wp-content/uploads/2023/06/Auriea.jpg)  
+  [Auriea Harvey: My Veins Are the Wires, My Body Is Your Keyboard](https://movingimage.org/event/auriea-harvey/)  
+  _first major survey of the pioneering net-artist... including her groundbreaking net-based interactives, video games, and augmented-reality sculptures"_    
+  February 2 - July 7, 2024    
   at [Museum of the Moving Image](https://movingimage.us/event/global-mode/)  
   36-01 35 Ave, Queens    
   Free general admission every Thursday, 2-6 PM    
@@ -76,11 +69,7 @@ Otherwise varying prices with Student ID
 
 
 ### EVENTS      
-[NYU ITP | IMA Winter Show](https://itp.nyu.edu/shows/winter2023/)     
-_An exhibition of creative interactive projects from NYU's IMA and ITP programs_   
-370 Jay St, 2nd and 4th Floors, Brooklyn    
-December 17 2-6 and December 18 4-8        
-Free
+
 <br/><br/>  
 
     
