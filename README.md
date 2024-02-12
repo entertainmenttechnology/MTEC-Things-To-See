@@ -16,7 +16,14 @@ at [Bitforms Gallery](https://bitforms.art/)
 Free    
 <br/><br/>
  
-
+  ![moulton](https://www.moma.org/d/assets/W1siZiIsIjIwMjQvMDEvMTgvMXNyeXdueXJhcl8wMV8xOF8yNF9TaGFuYV9Nb3VsdG9uX01ldGFfUGh5c2ljYWxfVGhlcmFweV9NREVfSGVyb19JbWFnZS5qcGciXSxbInAiLCJjb252ZXJ0IiwiLXF1YWxpdHkgOTAgLXJlc2l6ZSAyMDAweDIwMDBcdTAwM2UiXV0/01-18-24_Shana-Moulton-Meta:Physical-Therapy_MDE-Hero-Image.jpg?sha=6acdfe0f0db9c74c)  
+  [Shana Moulton: Meta/Physical Therapy](https://www.moma.org/calendar/exhibitions/5644)  
+  _video installation and performance_    
+  February 17 - April 21, 2024    
+  at [MoMA](https://www.moma.org/)  
+  11 West 53 Street, Manhattan  
+  Free with CUNY ID    
+  <br/><br/>
 
   ![harvey](https://movingimage.org/wp-content/uploads/2023/06/Auriea.jpg)  
   [Auriea Harvey: My Veins Are the Wires, My Body Is Your Keyboard](https://movingimage.org/event/auriea-harvey/)  
