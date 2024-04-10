@@ -7,14 +7,7 @@ _In order of closing soonest..._
 
 
 
-![hill](https://bitforms.art/wp-content/uploads/2024/01/language-pit_filled-1-1024x686.png)  
-[Gary Hill: Language Pit](https://bitforms.art/exhibition/gary-hill-language-pit/)  
-_"works that explore the physicality of language... through silkscreens, watercolors, sculpture, and video installation"_  
-February 1 - March 16, 2024  
-at [Bitforms Gallery](https://bitforms.art/)     
-131 Allen St, Manhattan   
-Free    
-<br/><br/>
+
  
   ![moulton](https://www.moma.org/d/assets/W1siZiIsIjIwMjQvMDEvMTgvMXNyeXdueXJhcl8wMV8xOF8yNF9TaGFuYV9Nb3VsdG9uX01ldGFfUGh5c2ljYWxfVGhlcmFweV9NREVfSGVyb19JbWFnZS5qcGciXSxbInAiLCJjb252ZXJ0IiwiLXF1YWxpdHkgOTAgLXJlc2l6ZSAyMDAweDIwMDBcdTAwM2UiXV0/01-18-24_Shana-Moulton-Meta:Physical-Therapy_MDE-Hero-Image.jpg?sha=6acdfe0f0db9c74c)  
   [Shana Moulton: Meta/Physical Therapy](https://www.moma.org/calendar/exhibitions/5644)  
@@ -33,6 +26,16 @@ Free
   99 Gansevoort Street, Manhattan  
   Free with CUNY ID    
   <br/><br/>
+
+
+  ![harvey](https://bitforms.art/wp-content/uploads/2024/03/arh_dagger_06__w-1.png)  
+[Auriea Harvey: The Unanswered Question]([https://bitforms.art/exhibition/gary-hill-language-pit/](https://bitforms.art/exhibition/auriea-harvey-the-unanswered-question/))  
+_net art pioneer showing digital-collaged murals and "born digital" 3d sculptures_  
+April 4 - May 25, 2024  
+at [Bitforms Gallery](https://bitforms.art/)     
+131 Allen St, Manhattan   
+Free    
+<br/><br/>
 
 ![jonas](https://www.moma.org/d/assets/W1siZiIsIjIwMjEvMDkvMjgvbnZ2eGRpOXdxX0RvdWJsZUx1bmFyRG9nX1ZpZGVvU3RpbGwuanBnIl0sWyJwIiwiY29udmVydCIsIi1xdWFsaXR5IDkwIC1yZXNpemUgMjAwMHgyMDAwXHUwMDNlIl1d/DoubleLunarDog_VideoStill.jpg?sha=483cff569078b568)  
   [Joan Jonas: Good Night Good Morning](https://www.moma.org/calendar/exhibitions/5367)  
