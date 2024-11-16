@@ -41,7 +41,7 @@ Free with City Tech ID
 
 
 ![Gentle](https://video-images.vice.com/_uncategorized/1540831407391-Gentle-Monster-New-York-FS_1.jpeg?resize=1575:*)      
-[The Visitor](https://garage.vice.com/en_us/article/bj49n8/gentle-monster-sunglasses-store)    
+[The Visitor](https://officemagazine.net/visitor)    
 _kinetic installations spread throughout retail environment_          
 at [Gentle Monster](https://www.gentlemonster.com/)      
 70 Wooster Street, Manhattan  
