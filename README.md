@@ -9,7 +9,7 @@ _In order of closing soonest..._
   [Auriea Harvey: My Veins Are the Wires, My Body Is Your Keyboard](https://movingimage.org/event/auriea-harvey/)  
   _"first major survey of the pioneering net-artist... including her groundbreaking net-based interactives, video games, and augmented-reality sculptures"_    
   February 2 - Dec 1, 2024    
-  at [Museum of the Moving Image](https://movingimage.us/event/global-mode/)  
+  at [Museum of the Moving Image](https://movingimage.us)  
   36-01 35 Ave, Queens    
   Free general admission every Thursday, 2-6 PM    
   $12 during regular hours with student ID    
