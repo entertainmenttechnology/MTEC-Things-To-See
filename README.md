@@ -56,16 +56,7 @@ at [Museum of the City of New York](http://mcny.org/nyatitscore)
 1220 Fifth Avenue, NYC  
 Free with City Tech ID      
  <br/><br/>
-
-![Immersion](https://www.cooperhewitt.org/wp-content/uploads/2014/10/Instagram_slider_2001w-e1456870197713.jpg)    
-[The Immersion Room](https://www.cooperhewitt.org/events/current-exhibitions/immersion-room/)   
-_Museum exhibition design, physical computing, interactive interface, interactive installation by [Local Projects](http://localprojects.com)_    
-Ongoing       
-at [Cooper Hewitt](http://www.cooperhewitt.org)   
-2 East 91st Street, NYC  
-Tuesdays 6-8 PM Pay-What-You-Wish   
-Otherwise varying prices with Student ID    
-  <br/><br/>     
+  
          
 
 
