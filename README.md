@@ -31,14 +31,6 @@ Free
 
 ### ONGOING EXHIBITIONS 
 
-![sound](https://www.tomorrowsworldtoday.com/wp-content/uploads/2024/03/Holly-Herndon-and-Mat-Dryhurst.-Play-from-Memory-2024-Courtesy-the-artists-and-Feral-File.png)  
-  [Sound Machines](https://www.moma.org/calendar/exhibitions/5694?)  
-  _"seven artists explore the strange world of sound through new technologies"_      
-  Online exhibition from [MoMA](https://www.moma.org/)  
-  [Access exhibition here](https://feralfile.com/exhibitions/sound-machines-xz1/overview)  
-  Free   
-  <br/><br/>
-
 ![cento](https://whitneymedia.org/assets/image/829165/large_RS73494_Nancy_Baker_Cahill_Cento_sketch.jpg)  
 [Nancy Baker Cahill: CENTO](https://whitney.org/exhibitions/cento)     
 _"participatory augmented reality art project collectively built by the audience"_  
