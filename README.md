@@ -48,7 +48,7 @@ at [Gentle Monster](https://www.gentlemonster.com/)
 Free
 <br/><br/> 
 
-![Core](https://untappedcities.com/wp-content/uploads/2016/11/New-York-At-Its-Core-Exhibition-Museum-of-the-City-of-New-York-408.jpg)  
+![Core](https://pentagram-production.imgix.net/50b129ba-e321-4111-8e0e-58d65efe8d85/mb_nyatitscore_10.jpg?)  
 [New York at its Core](http://thecreatorsproject.vice.com/blog/redesign-new-york-city-museum-experience)    
 _Museum exhibition design, interactive interface, interactive installation by [Local Projects](http://localprojects.com)_  
 Ongoing      
