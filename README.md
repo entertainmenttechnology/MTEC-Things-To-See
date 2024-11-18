@@ -25,7 +25,14 @@ Free
 <br/><br/>
 
 
-
+  ![bio](https://images.squarespace-cdn.com/content/v1/5d0216e42a8b820001e09122/1722880692542-XC5JD7LO2GV4KF1769HV/DSC_5942.jpg?format=2500w)  
+[Water Stories](https://www.biobatartspace.com/current)  
+_BioArt, virtual reality, physical computing, video installation, more_  
+Saturdays through May 3, 2025  
+at [BioBat Art Space](https://www.biobatartspace.com)     
+140A 58th Street, Brooklyn Army Terminal, Building A, Brooklyn  
+Free    
+<br/><br/>
 
  
 
