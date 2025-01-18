@@ -62,7 +62,7 @@ at [BioBat Art Space](https://www.biobatartspace.com)
 Free    
 <br/><br/>
 
-  ![Majeed](https://queensmuseum.org/wp-content/uploads/2024/12/Scan-10-copy-1.png)  
+![Majeed](https://queensmuseum.org/wp-content/uploads/2024/12/Scan-10-copy-1.png)    
 [Umber Majeed: J😊Y TECH](https://queensmuseum.org/exhibition/umber-majeed-joy-tech/)  
 _augmented reality experience and mixed media installation_  
 March 16 - October 5, 2025  
