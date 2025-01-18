@@ -17,6 +17,15 @@ at [The Shed](https://www.theshed.org/)
 Free with CUNY ID    
 <br/><br/>
 
+  ![flatiron](https://flatironnomad.nyc/wp-content/uploads/2025/01/Winter-Glow-8-scaled.jpg)  
+[Winter Glow Art Installations](https://flatironnomad.nyc/winter-glow/)  
+_Public interactive art installations_  
+through February 28, 2025   
+at [Flatiron Public Plazas](https://flatironnomad.nyc/winter-glow/)     
+Flatiron Plaza, Manhattan   
+Free   
+<br/><br/>
+
   ![feast](https://bitforms.art/wp-content/uploads/2025/01/MLF_Barbican-18-scaled.jpg)  
 [Marshmallow Laser Feast: Entwined](https://bitforms.art/exhibition/entwined)  
 _generative video installation_  
