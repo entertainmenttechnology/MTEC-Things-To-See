@@ -1,12 +1,11 @@
-_Ongoing list of local exhibitions and events related to the field of Emerging Media Technologies.    
-Contact aberkoy at citytech dot cuny dot edu with any additions or corrections!_
+_Ongoing list of local exhibitions and events (most of them free) related to the field of Emerging Media Technologies._ 
+  
+_Contact aberkoy at citytech dot cuny dot edu with any additions or corrections!_
   
 
 ### EXHIBITIONS CLOSING SOON    
 _In order of closing soonest..._ 
 <br/><br/>
-
-
 
   ![luna](https://d36dm5l5awwtco.cloudfront.net/api/file/ZujCfozeRomWBZJLc7oA/convert?w=2048&compress=true&fit=max)  
 [Luna Luna: Forgotten Fantasy](https://www.theshed.org/program/440-luna-luna-forgotten-fantasy)  
