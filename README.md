@@ -4,34 +4,44 @@ Contact aberkoy at citytech dot cuny dot edu with any additions or corrections!_
 
 ### EXHIBITIONS CLOSING SOON    
 _In order of closing soonest..._ 
-
-  ![harvey](https://static01.nyt.com/images/2024/06/07/multimedia/06auriea-harvey-review-01-jwvm/06auriea-harvey-review-01-jwvm-superJumbo.jpg?quality=75&auto=webp)  
-  [Auriea Harvey: My Veins Are the Wires, My Body Is Your Keyboard](https://movingimage.org/event/auriea-harvey/)  
-  _"first major survey of the pioneering net-artist... including her groundbreaking net-based interactives, video games, and augmented-reality sculptures"_    
-  Now - Dec 1, 2024    
-  at [Museum of the Moving Image](https://movingimage.us)  
-  36-01 35 Ave, Queens    
-  Free general admission every Thursday, 2-6 PM    
-  $12 during regular hours with student ID    
-  <br/><br/>
-
-
-![stars](https://media.timeout.com/images/106202483/image.jpg)  
-[STARSCAPE](https://www.timeout.com/newyork/news/walk-through-this-instagram-worthy-free-immersive-light-installation-in-manhattan-111524)  
-_immersive light installation_  
-Now - January 12, 2025    
-Presented by [Genesis House](https://www.instagram.com/genesishousenyc/)  
-40A 10th Ave., Manhattan  
-Free
 <br/><br/>
 
-  ![limit](https://bitforms.art/wp-content/uploads/2024/11/Limit-of-Control-Title.png)  
-[Marco Brambilla: Limit of Control](https://bitforms.art/exhibition/limit-of-control)  
-_video installation, generative AI_  
-Nov 14, 2024 - Jan 15, 2025  
+
+
+  ![luna](https://d36dm5l5awwtco.cloudfront.net/api/file/ZujCfozeRomWBZJLc7oA/convert?w=2048&compress=true&fit=max)  
+[Luna Luna: Forgotten Fantasy](https://www.theshed.org/program/440-luna-luna-forgotten-fantasy)  
+_immersive exhibition of carnival attractions by artists including Jean-Michel Basquiat, Sonia Delaunay, Keith Haring, David Hockney, Roy Lichtenstein, and more_  
+through February 23, 2025   
+at [The Shed](https://www.theshed.org/)     
+535 West 30th st, Manhattan   
+Free with CUNY ID    
+<br/><br/>
+
+  ![feast](https://bitforms.art/wp-content/uploads/2025/01/MLF_Barbican-18-scaled.jpg)  
+[Marshmallow Laser Feast: Entwined](https://bitforms.art/exhibition/entwined)  
+_generative video installation_  
+January 25 - March 8, 2025  
 at [Bitforms Gallery](https://bitforms.art/)     
 131 Allen St, Manhattan   
 Free    
+<br/><br/>
+
+  ![light](https://press.moma.org/wp-content/uploads/2024/11/PR-RR-MoMA-front-flood.png)  
+[Rafaël Rozendaal: Light](https://www.moma.org/calendar/exhibitions/5774)  
+_code-based internet art animations_  
+through Spring 2025 (no date listed)  
+at [MoMA](https://www.moma.org/)     
+11 West 53 Street, Manhattan   
+Free with CUNY ID    
+<br/><br/>
+
+  ![lloyd](https://www.moma.org/media/W1siZiIsIjU4OTAyMiJdLFsicCIsImNvbnZlcnQiLCItcXVhbGl0eSA5MCAtcmVzaXplIDIwMDB4MTQ0MFx1MDAzZSJdXQ.jpg?sha=956a77c6ff97a362)  
+[Tom Lloyd: Veleuro ](https://www.moma.org/calendar/exhibitions/5782)  
+_historic 1968 kinetic light sculpture_  
+through Spring 2025 (no date listed)  
+at [MoMA](https://www.moma.org/)     
+11 West 53 Street, Manhattan   
+Free with CUNY ID    
 <br/><br/>
 
 
@@ -42,6 +52,16 @@ Saturdays through May 3, 2025
 at [BioBat Art Space](https://www.biobatartspace.com)     
 140A 58th Street, Brooklyn Army Terminal, Building A, Brooklyn  
 Free    
+<br/><br/>
+
+  ![Majeed](https://queensmuseum.org/wp-content/uploads/2024/12/Scan-10-copy-1.png)  
+[Umber Majeed: J😊Y TECH](https://queensmuseum.org/exhibition/umber-majeed-joy-tech/)  
+_augmented reality experience and mixed media installation_  
+March 16 - October 5, 2025  
+at [Queens Museum](https://queensmuseum.org/)     
+New York City Building  
+Flushing Meadows Corona Park, Queens  
+$6 student tickets with CUNY ID     
 <br/><br/>
 
  
