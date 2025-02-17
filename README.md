@@ -7,15 +7,6 @@ _Contact aberkoy at citytech dot cuny dot edu with any additions or corrections!
 _In order of closing soonest..._ 
 <br/><br/>
 
-  ![luna](https://d36dm5l5awwtco.cloudfront.net/api/file/ZujCfozeRomWBZJLc7oA/convert?w=2048&compress=true&fit=max)  
-[Luna Luna: Forgotten Fantasy](https://www.theshed.org/program/440-luna-luna-forgotten-fantasy)  
-_immersive exhibition of carnival attractions by artists including Jean-Michel Basquiat, Sonia Delaunay, Keith Haring, David Hockney, Roy Lichtenstein, and more_  
-through February 23, 2025   
-at [The Shed](https://www.theshed.org/)     
-535 West 30th st, Manhattan   
-Free with CUNY ID    
-<br/><br/>
-
   ![flatiron](https://flatironnomad.nyc/wp-content/uploads/2025/01/Winter-Glow-8-scaled.jpg)  
 [Winter Glow Art Installations](https://flatironnomad.nyc/winter-glow/)  
 _Public interactive art installations_  
@@ -32,6 +23,16 @@ January 25 - March 8, 2025
 at [Bitforms Gallery](https://bitforms.art/)     
 131 Allen St, Manhattan   
 Free    
+<br/><br/>
+
+
+  ![luna](https://d36dm5l5awwtco.cloudfront.net/api/file/ZujCfozeRomWBZJLc7oA/convert?w=2048&compress=true&fit=max)  
+[Luna Luna: Forgotten Fantasy](https://www.theshed.org/program/440-luna-luna-forgotten-fantasy)  
+_immersive exhibition of carnival attractions by artists including Jean-Michel Basquiat, Sonia Delaunay, Keith Haring, David Hockney, Roy Lichtenstein, and more_  
+through March 16, 2025   
+at [The Shed](https://www.theshed.org/)     
+535 West 30th st, Manhattan   
+Free with CUNY ID    
 <br/><br/>
 
   ![light](https://press.moma.org/wp-content/uploads/2024/11/PR-RR-MoMA-front-flood.png)  
